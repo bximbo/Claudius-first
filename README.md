@@ -1,6 +1,6 @@
 # Claudius-first
 
-Creatice Coding Pro Max
+Creative Coding Pro Max (SEE VIDEO BELOW)
 
 About:
 
